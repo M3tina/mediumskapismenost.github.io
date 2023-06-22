@@ -1,0 +1,1 @@
+# mediumskapismenost.github.io
